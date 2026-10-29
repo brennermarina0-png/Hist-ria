@@ -1,1 +1,9 @@
-# Hist-ria
+# A aventura de Luna
+
+Era uma vez, uma familia alegre e feliz, eles eram amados por todos principalmente a pequena menina, chamada Luna. Alguns anos se passaram e a pequena Luna completou 15 anos, nessa epoca comecou um problema na familia, a mae de Luna ficou muito doente, tentaram salva-la de qualquer maneira, mas infelizmente nao conseguiram. Passou mais 4 anos e o pai de Luna conheceu uma mulher que acabou virando madrasta de Luna, essa mulher, chamada Frida, era muito meiga no inicio, mas depois virou uma pessoa completamente diferente. Frida tinha uma filha, chamada Anastacia, ela tambem nao gostava da Luna e sempre competia para ser a melhor.
+
+Em uma noite qualquer, Luna estava andando pela casa e encontrou seu pai sentado em uma mesinha de escritorio, ele parecia bem preocupado. Seu pai falava algo, Luna tentou escutar:
+-Sim senhor, mas precisa ser tao longe assim? Eu tenho uma familia e nao posso deixar minha filha sozinha.
+Luna ficou muito preocupada, como assim um lugar longe, para onde seu pai iria? No dia seguinte Luna foi conversar com o pai e ele explicou toda a situacao. Ele teria que fazer uma viagem a trabalho e atravessar as montanhas congeladas, uma viagem que duraria muitos meses, Luna apenas aceitou e chorou abracada com o pai. A noite, ele partiu a trabalho e Luna ficou sozinha com a madrasta e a filha, elas comecaram a tratar Luna muito mal, ate chegar num ponto de expulsar ela de casa.
+
+Luna andou sem rumo pela floresta, ela nao sabia para onde ir pois nao conhecia ninguem, era tudo tao escuro e assustador. De repente ela escuta um uivo, haviam lobos na regiao, Luna correu, correu, correu muito e sem querer caiu dentro de um buraco bem fundo, por alguma magica Luna nao se machucou. Nesse buraco haviam duas portas, uma portinha pequena e uma porta grande, em cima de uma mesinha havia um "suco" para beber e diminuir de tamanho, Luna precisava escolher entre as Duas portas.
