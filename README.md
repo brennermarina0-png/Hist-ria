@@ -12,6 +12,5 @@ Ela abriu uma das portas e haviam muitas coisas escritas nas paredes, historias 
 
 Ela fechou os olhos e aceitou o destino ate que do nada apareceu um homem e espantou o lobisom , era Damon Salvatore (um vampiro) ela nao sabia... Ele disse para ela nao sair mais a noite na floresta principalmente em noites de lua cheia, ela perguntou oque era aquilo, ele respondeu que era um lobisomen. Damon ofereceu de levar Luna para casa, ela disse que nao tinha casa e contou sua situação, ele disse se ela queria ir para casa dele. 
 
-Ela recusou pois ele era um estranho ne, mas no final ela viu que nao tinha para onde ir e foi, com o tempo eles se apaixonaram, mas ela n sabia que ele era um vampiro. Ate que um dia ela viu a face dele e ao inves de se assutar ela pediu para ele trasformala. Ela virou uma vampira , voltou para casa de seu pai e descobriu que ele havia morrido, ela descobriu que tinha sido Frida sua madastra e anstacia sua meia irma. Ela desligou sua humanidade e estripou as duas. 
-
-Ligou a humanidade de volta e viveu feliz com Damon
+Ela recusou pois ele era um estranho ne, mas no final ela viu que nao tinha para onde ir e foi, com o tempo eles se apaixonaram, mas ela n sabia que ele era um vampiro. Ate que um dia ela viu a face dele e ao inves de se assutar ela pediu para ele trasformala. Ela virou uma vampira , voltou para casa de seu pai e descobriu que ele havia morrido, ela descobriu que tinha sido Frida sua madastra e anstacia sua meia irma. Ela desligou sua humanidade e matou as duas.
+No final, Luna descobre que damon é um vampiro e ela resolve de se transformar em vampira tambem, damon morde ela e ela toma sangue humano, eles se casam e vivem lindos para sempre.
